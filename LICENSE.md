@@ -1,4 +1,4 @@
-# 
+# Secreto Vegas Pro para PC addons é o melhor Vegas Pro para PC addons com suporte a plugins e câmera lenta. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
